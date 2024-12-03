@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @VOZZYBOY
+- 👋 Hi, I’m @VOZZYBOY )
 
   _-employee of https://matrixcrm.ru/
 <!---
